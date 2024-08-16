@@ -6,4 +6,4 @@ sou da escola P.E.I. E.E. Leonardo Vilas Boas.
 - contato -> 00001128454105sp@al.educacao.sp.gov.br --\/-- fora do horario integral -> jeffronfepasa@gmail.com .
 - youtube -> JEFFRON_FEPASA
 - espero q a gente se entenda muito bem, adeus.
-- ![](![image](https://github.com/user-attachments/assets/d5150c18-755b-48af-aa2c-bfbd59503652))
+- ![](https://tenor.com/5h76.gif)
