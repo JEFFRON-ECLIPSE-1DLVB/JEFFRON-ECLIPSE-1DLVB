@@ -8,5 +8,3 @@ sou da escola P.E.I. E.E. Leonardo Vilas Boas.
 - espero q a gente se entenda muito bem, adeus.
 - ![](![unnamed (1)](https://github.com/user-attachments/assets/8398295c-17bd-4b24-afe7-cbe01c970e3c)
 )
-![](![Uploading turn-looking-around.gif…]()
-)
