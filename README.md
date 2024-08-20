@@ -6,7 +6,8 @@ sou da escola P.E.I. E.E. Leonardo Vilas Boas.
 - contato -> 00001128454105sp@al.educacao.sp.gov.br --\/-- fora do horario integral -> jeffronfepasa@gmail.com .
 - youtube -> JEFFRON_FEPASA
 - espero q a gente se entenda muito bem, adeus.
-- ![](https://tenor.com/pt-BR/view/turn-looking-around-cute-enter-stare-gif-13615320)
+- ![](![image](https://github.com/user-attachments/assets/992a07ec-b0b5-49da-a8f7-f20f7a6ce9a7)
+)
 - ![](![unnamed (2)](https://github.com/user-attachments/assets/93ec5a5f-c39a-4ae4-82f6-7fafabf3bd12)
 )
 - ![](![unnamed (1)](https://github.com/user-attachments/assets/8398295c-17bd-4b24-afe7-cbe01c970e3c)
