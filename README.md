@@ -12,3 +12,5 @@ sou da escola P.E.I. E.E. Leonardo Vilas Boas.
 )
 ![](https://tenor.com/pt-BR/view/toothless-yoshi-cas-van-de-pol-how-to-train-your-dragon-gif-3895550527008532813
 )
+![tr](https://github.com/user-attachments/assets/3295b1ed-12b5-4457-92b4-ae301042dfcc
+)
